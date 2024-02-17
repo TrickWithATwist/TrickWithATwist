@@ -1,4 +1,4 @@
 - Hello there! 👋
-- Strugglin student we out here ✌️
+- College student we out here ✌️
 - I like to code software 💻 and make art 🎨
 - My projects and repositories can be seen below! ≽^•⩊•^≼
