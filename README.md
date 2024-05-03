@@ -1,4 +1,4 @@
 - Hello there! 👋
-- College student we out here ✌️
+- College student 🏫
 - I like to code software 💻 and make art 🎨
 - My projects and repositories can be seen below! ≽^•⩊•^≼
